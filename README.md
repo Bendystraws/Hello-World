@@ -1,5 +1,5 @@
 # Hello-World
-Testing repository
 
 
-On the Internet, nobody knows you're a series of constructed bendystraws manipulating electronic devices. 
+
+On the Internet, nobody knows you're a series of magnificently constructed bendystraws manipulating electronic devices. 
